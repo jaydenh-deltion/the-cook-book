@@ -51,7 +51,8 @@
 * Schep het tonijn-en paprikamengsel door de pasta en bestrooi met het basilicum.
 
 
-### ingredienten 4 personen
+### ingredienten Spaghetti 
+4 personen
 
 * 400g Spaghetti
 * 800g Varkensvlees
