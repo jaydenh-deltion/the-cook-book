@@ -14,4 +14,3 @@
 * Giet het water af en stamp de piepers en boerenkool door elkaar
 * Bak de spekjes en voeg die toe aan het gerecht
 * Voeg naar smaak nog peper en zout toe.
-
